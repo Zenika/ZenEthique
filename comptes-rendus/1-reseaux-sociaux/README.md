@@ -1,4 +1,4 @@
-# Compte rendu sur les réseaux sociaux
+# Comptes rendus sur les réseaux sociaux
 
 ## Rennes, 18/01/2018 : Black Mirror S03E01 - Les réseaux sociaux (4 participants)
 
